@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Phunlee17
-
+- Iam a Intern Bussiness Analyst BX by IRTech
